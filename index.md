@@ -13,12 +13,12 @@ Of how we may be free!
 In the camps and in the doorways they sing holy and profane  
 as you hold their hands and listen to the rapture of their brain!  
 Midst the ruins all around us inspiration crosses pain  
-for strength against our chain!  
+for strength to break our chain!  
 
 Oh Democracy together!  
 Oh Democracy together!  
 Oh Democracy together!  
-for strength against our chain!  
+for strength to break our chain!  
 
 There is hope for all the children forced to live in a disguise  
 that has slandered our kind decency and steals at night our eyes.  
